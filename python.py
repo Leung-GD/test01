@@ -1,8 +1,0 @@
-sA
-	
-	DSAD
-	DSADA
-	DSASAF
-	HFDGFD
-	DSA
-12
